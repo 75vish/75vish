@@ -1,6 +1,6 @@
 # Hi there 👋, I'm Vishakha Routra
 
-💻 **AI & ML Enthusiast | Developer**  
+💻 **AI & ML Enthusiast | Spftware Developer**  
 
 ---
 
